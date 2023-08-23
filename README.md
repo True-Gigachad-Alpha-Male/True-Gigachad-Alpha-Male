@@ -1,0 +1,5 @@
+- 👋 Hi, I’m True-Gigachad-Alpha-Male
+- 👀 I’m interested in programming hard things in Scratch and I want to learn programming in Python.
+- 🌱 I’m currently learning how to make certificate in atom not expared.
+- 💞️ I’m not looking to collaborate.
+- 📫 How to reach me: i dont know.
